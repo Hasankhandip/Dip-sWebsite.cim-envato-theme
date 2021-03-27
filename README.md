@@ -1,1 +1,1 @@
-# Dip-sWebsite.cim-envato-theme
+# Dip-sWebsite.com-envato-theme
